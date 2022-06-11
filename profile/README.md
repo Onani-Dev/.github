@@ -1,3 +1,3 @@
-# Click the seagull please
+# Click the CAT please
 
-[![seaful](https://ichef.bbci.co.uk/news/976/cpsprodpb/92F7/production/_101232673_angry.jpg)](https://onani.xyz/fun)
+[![ONANI](https://media.discordapp.net/attachments/962019842582544494/983696595658899466/ezgif.com-gif-maker_11.gif)](https://discord.gg/onani)
